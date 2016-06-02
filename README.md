@@ -11,5 +11,5 @@ We'll since you already asked then, I should say my real self was washed in a dr
 I ripped Kim Ks' ass of and smacked it so hard it knocked her clothes backwards like Kris Kros!
 I smoke a bit of a grass and just let it pass while my head makes a mess.
 Come here girl!
-"Duke, wait a minute! THat's my girl, man!"
+"Duke, wait a minute! That's my girl, man!"
 Don't worry, we'll be done in ten.

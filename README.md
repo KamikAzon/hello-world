@@ -12,3 +12,6 @@ I smoke a bit of a grass and just let it pass while my head makes a mess.
 Come here girl!
 "Duke, wait a minute! That's my girl, man!"
 Don't worry, we'll be done in ten.
+[...]
+Stop the tape, this kid needs to be locked away!
+Dr. Dre, don't just stand there, operate!
